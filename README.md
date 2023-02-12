@@ -1,1 +1,0 @@
-# qasagava.github.io
